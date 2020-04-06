@@ -1,3 +1,3 @@
-# MayoCompPh
+# Majo
 
-sffaimsfvltsfalasdmnp
+majo
